@@ -1,1 +1,1 @@
-My personal website (overhaul incoming)
+My outdated personal website (overhaul incoming)
